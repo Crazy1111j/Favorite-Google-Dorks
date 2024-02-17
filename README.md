@@ -4,4 +4,4 @@
 
 2.https://admin.google.com/ac/accountchooser?continue=https://admin.google.com/
 
-3.
+Wifi Password.pk3tx+b8%wms
